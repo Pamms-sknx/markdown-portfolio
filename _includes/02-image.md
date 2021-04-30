@@ -1,1 +1,2 @@
-![Picture of ME!]![117312891_232113198014326_1246472316824449651_n](https://user-images.githubusercontent.com/83453626/116697023-da03f300-a9ec-11eb-8295-f7f876ff94ef.jpg)
+![Picture of ME!]![2029165](https://user-images.githubusercontent.com/83453626/116697457-66aeb100-a9ed-11eb-814f-ba3a42e72b77.jpg)
+
